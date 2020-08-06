@@ -1,2 +1,0 @@
-# fantastic-palm-tree
-Palma
